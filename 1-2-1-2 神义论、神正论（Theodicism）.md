@@ -1,4 +1,4 @@
-# 神义论/神正论（Theodicism）
+# 神义论、神正论（Theodicism）
 【编号】：1-2-1-2
 【评价】：前反思（pre-reflexive）
 场域论：1 =“宇宙”（universe）
