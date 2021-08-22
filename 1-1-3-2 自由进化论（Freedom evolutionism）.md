@@ -1,4 +1,4 @@
-# 自由进化论（Freedom evolutionism）
+# 【1-1-3-2】自由进化论（Freedom evolutionism）
 【编号】：1-1-3-2
 场域论：1=“世界”（world）
 场域由自然法则所创造，并充满了自然秩序。

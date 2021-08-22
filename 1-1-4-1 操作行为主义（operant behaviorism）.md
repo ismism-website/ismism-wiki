@@ -1,4 +1,4 @@
-# 操作行为主义（operant behaviorism）
+# 【1-1-4-1】操作行为主义（operant behaviorism）
 ## 【编号】：1-1-4-1
 
 | 论域 | 运动方式           | 内容 |

@@ -1,4 +1,4 @@
-# 直觉主义（intuitionism）
+# 【1-3-4】直觉主义（intuitionism）
 【编号】：1-3-4
 【评价】：前反思（pre-reflective）
 【构造】：（1=秩序；2=冲突；3=中心；4=虚无）

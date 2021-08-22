@@ -1,4 +1,4 @@
-# 宗教实在论（Religious realism）
+# 【1-2】宗教实在论（Religious realism）
 【编号】：1-2
 【评价】：前反思（pre-reflexive）
 【构造】（1=秩序；2=冲突；3=中心；4=虚无）
